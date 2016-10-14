@@ -4,25 +4,31 @@ _**Brittany Misacango**_
 
 #### High School of Telacommuniction Arts and Technology
 
- [My email] (brittanym3578@hstat.org)   
+[Visit my portfolio ](https://sites.google.com/a/hstat.org/brittanym3578sep11/)  
 
-_I am currently 16 years old, born in NYC. I am attending a software engineering class and I am enjoying every second of it. Besides coding, I love to **sing** and **dance** because it 
-makes feel so happy and it clears my mind._     
+Email: Brittanym3578@hstat.org
 
-**Schedule** 
+_I am currently 16 years old, born in NYC. I am attending a software engineering class and I am enjoying every second of it. 
+Besides coding, I love to **sing** and **dance** because it makes feel so happy and it clears my mind._   
 
-1.SEP11
 
-2.English
+_Overall, I love to experinece new things and have a little challenge in order to boost my knowledge._
 
-3.APUSH
+>## **Schedule** 
 
-4.Lunch
+1. SEP11
 
-5.AP Spanish
+2. English
 
-6.Adv.Algebra
+3. APUSH
 
-7.AP Biology
+4. Lunch
 
-8.Study Hall 
+5. AP Spanish
+
+6. Adv.Algebra
+
+7. AP Biology
+
+8. Study Hall
+   * (wednesday-friday) 
