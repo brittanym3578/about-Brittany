@@ -1,8 +1,8 @@
-_**Brittany Misacango**_
+## _**Brittany Misacango**_
 
-## Student
-
-#### High School of Telacommuniction Arts and Technology
+##### Student
+---
+#### High School of Telacommunication Arts and Technology
 
 [Visit my portfolio ](https://sites.google.com/a/hstat.org/brittanym3578sep11/)  
 
@@ -15,6 +15,7 @@ Besides coding, I love to **sing** and **dance** because it makes feel so happy 
 _Overall, I love to experinece new things and have a little challenge in order to boost my knowledge._
 
 >## **Schedule** 
+
 
 1. SEP11
 
